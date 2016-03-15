@@ -27,4 +27,3 @@ To watch some training videos, visit http://www.youtube.com/user/c9ide
 
 
 グエン・ゴック・ハー：２０１２１６２１
-グェン・ゴック・ソン : 20122351
